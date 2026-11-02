@@ -1,1 +1,3 @@
 # QUESTION-ALL-THATS-KNOWN
+
+So, there's this girl. She used to watch her favorite kids show. And she'd draw the characters all the time. Her father worked for a education game company and decided to make a Fishtronaut game for his daughter. But one day, someone took one of her newly finished draws and crushed it. Here's the darkest part. The bully smashed a brick right in her face on purposeAnd her father vented all of his frustrations, blaming Fishtronaut for his daughter's suffering and later, when thw girl grows up, she unknowingly gets a job at the park from her childhood but ends up falling and drowning into the lake by the Pop (my least favorite character. It's just a ball. The only 3d object in the show)
